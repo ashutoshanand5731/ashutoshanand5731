@@ -3,8 +3,8 @@
 
 Email Me 👉 ✉️ **ashutoshanand5731@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m current Studying at IISER Bhopal:**
-- 🌱 **I have completed my schooling from Sainik School Kazhakootam.** 
+- 🔭 **I’m current Studying at IISER Bhopal.Batch'23.**
+- 🌱 **I have completed my schooling from Sainik School Kazhakootam.(2015-20)** 
 
 
 # 💻 Tech Stack:
